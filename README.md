@@ -1,4 +1,4 @@
-  b    ### Atanazante ser vivo que viés, seja desavindo a essa apoteose!
+     ### Atanazante ser vivo que viés, seja desavindo a essa apoteose!
 
 Percebo que sua curiosidade perante a vida alheia é imensuravel. Tudo bem, me chame de Luiz Fernando Alves e como qualquer aluno sou apenas mais um  numero, uma nota vermelha e apenas uma vaga nessa instituição decrépita. Adoro ler, contemplar o abismo e ver coisas bonitas. 
 
